@@ -14,6 +14,6 @@
  
  @lucaszssu
 
-![](https://tenor.com/pt-BR/view/plink-cat-blink-blink-gif-4703038199058402686)
+![](https://media1.tenor.com/m/-m6q6nEJmAgAAAAC/dancing-duck-dance-duck.gif)
 
 
